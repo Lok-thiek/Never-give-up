@@ -1,0 +1,3 @@
+# Never Give Up
+
+Never give up, no matter how challenges and failures are too many too big, they are part of life, but they do not define your future. Every setback is an opportunity to learn and grow stronger. When you keep trying, you build confidence and resilience. Success does not come over-night, it requires patience, efforts, and determinations. Even when you feel tired or discouraged, keep moving forward step by step. Believe in yourself and trust your abilities. Hard work always brings results in the end. Remember, those who never give up are the ones who achieve their dreams and create a successful and meaningful life....
